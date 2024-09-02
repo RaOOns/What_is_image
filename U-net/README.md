@@ -1,19 +1,19 @@
-U-net 강의 \n
+U-net 강의
 
-[1] \n
+[1]
 https://www.youtube.com/watch?v=O_7mR4H9WLk \n
 
-[2] \n
+[2]
 https://www.youtube.com/@piew97/videos \n
 
-[3] \n
+[3]
 https://www.youtube.com/watch?v=Dzlm86WBV60 \n
 
-[4] \n
+[4]
 https://www.youtube.com/@hanyoseob/videos \n
 
-[5] \n
+[5]
 https://www.youtube.com/watch?v=v0uH0CN6WfQ&t=1s \n
 
-[6] \n
+[6]
 https://www.youtube.com/watch?v=Dzlm86WBV60 \n
